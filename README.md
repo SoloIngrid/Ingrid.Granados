@@ -1,2 +1,2 @@
-# Ingrid.Granados
+# Ingrid Granados
 My public profile
